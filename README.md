@@ -1,5 +1,3 @@
 - 👋 Hi, I’m Kris @exAstrisDivitae
 - 👀 I’m interested in decentralization, sharing knowledge, and all sorts of creative pursuits.
-- 🌱 I’m currently learning how to make enough money to survive.
-- 💞️ I’m looking to collaborate on grand visions that could use some grounding in reality, plus anything that pays decently.
 - 📫 Reach me at exAstrisDivitae[_a-t_]gmail[-d_o-t_]com
